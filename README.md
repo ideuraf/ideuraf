@@ -1,4 +1,4 @@
-# hey there, i'm syed! ＼(٥⁀▽⁀ )／
+# hey there! ＼(٥⁀▽⁀ )／
 
 I’m [**Syed**](https://www.ideuraf.dev), a computer engineering student @ University of Houston.
 
